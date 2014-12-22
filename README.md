@@ -36,55 +36,65 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-1. DECAD. V.
+1. TO THE MOST HIGH AND EXCELLENT PRINCE, HENRIE, Prince of Wales, all happineſſe.
 
-1. DECAD. VI.
+1. THE SVMME OF THE SEVERALL EPISTLES.
 
-1. DECAD. V.
+    _ DECAD. V.
 
-1. DECAD. VI.
+    _ DECAD. VI.
+
+1. Errata.
+
+    _ DECAD. V.
+
+    _ DECAD. VI.
 
 #####Body#####
 
-1. EPISTLE. I. To my Lord Biſhop of Bathe and Wels.
+1. The fifth Decade.
 
-1. To my Lord Biſhop of Worceſter.
+    _ EPISTLE. I. To my Lord Biſhop of Bathe and Wels.
 
-1. To my Lady Mary Denny.
+    _ To my Lord Biſhop of Worceſter.
 
-1. To my Lady Honoria Hay.
+    _ To my Lady Mary Denny.
 
-1. To Sir Richard Lea, ſince deceaſſed.
+    _ To my Lady Honoria Hay.
 
-1. To Maſter Peter Moulin, Preacher of the Church at PARIS.
+    _ To Sir Richard Lea, ſince deceaſſed.
 
-1. To Maſter THOMAS SVTTON.
+    _ To Maſter Peter Moulin, Preacher of the Church at PARIS.
 
-1. To E. B. Dedicated to Sir GEORGE GORING.
+    _ To Maſter THOMAS SVTTON.
 
-1. To S. H. I.
+    _ To E. B. Dedicated to Sir GEORGE GORING.
 
-1. To Maſter WILLIAM KNIGHT.
+    _ To S. H. I.
 
-1. EPIST. I. To my LORD DENNY.
+    _ To Maſter WILLIAM KNIGHT.
+THE SIXT DECADE Of EPISTLES.LONDON, 1610.
+1. The Sixt Decade.
 
-1. EPIST. II. To Mr.T. S. Dedicated to Sir Fulke Greuill.
+    _ EPIST. I. To my LORD DENNY.
 
-1. EPIST. III. To S George Fleetwood.
+    _ EPIST. II. To Mr.T. S. Dedicated to Sir Fulke Greuill.
 
-1. EPIST. IIII. To Mr. Doctor Milburne.
+    _ EPIST. III. To S George Fleetwood.
 
-1. EPIST. V. Written long ſince to Mr.I. VV.
+    _ EPIST. IIII. To Mr. Doctor Milburne.
 
-1. EPIST. VI. To Mr.I. B.
+    _ EPIST. V. Written long ſince to Mr.I. VV.
 
-1. EPIST. VII. To Mr.Ionas Reigesbergius in Zeland.
+    _ EPIST. VI. To Mr.I. B.
 
-1. EPIST. VIII. To W. I. condemned for Murder.
+    _ EPIST. VII. To Mr.Ionas Reigesbergius in Zeland.
 
-1. EPIST. IX. To Mr.Iohn Mole, of a long time nowe priſoner vnder the Inquiſition at Rome.
+    _ EPIST. VIII. To W. I. condemned for Murder.
 
-1. EPIST. X. To all Readers.
+    _ EPIST. IX. To Mr.Iohn Mole, of a long time nowe priſoner vnder the Inquiſition at Rome.
+
+    _ EPIST. X. To all Readers.
 
 **Types of content**
 
